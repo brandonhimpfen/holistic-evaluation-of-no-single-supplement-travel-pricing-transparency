@@ -1,1 +1,1 @@
-# holistic-evaluation-of-no-single-supplement-travel-pricing-transparency
+# Holistic Evaluation of “No Single Supplement” Travel Pricing Transparency 
